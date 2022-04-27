@@ -45,3 +45,7 @@ Chúng tôi luôn có những chương trình khuyến mãi đặc sắc, phù h
 megatechnologyvn/megatechnologyvn is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+MEGA Technology
+☎️Hotline : 0236.3689.300
+🌍Website: http://mega.com.vn/
+🏢Showroom : 130 Hàm Nghi, Đà Nẵng
